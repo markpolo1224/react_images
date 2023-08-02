@@ -1,1 +1,1 @@
-die any military cage spent solid refused atom impossible passage enemy better supper word silver
+separate each find teacher ride north vessels south basis or wash gradually swept tax hurried
