@@ -1,1 +1,1 @@
-take nearest got temperature birds sense drive could train affect wealth cage route subject remove
+pocket independent opportunity oldest behavior lot load direction earn cave paid cast policeman individual view
