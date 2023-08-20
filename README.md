@@ -1,1 +1,1 @@
-pocket independent opportunity oldest behavior lot load direction earn cave paid cast policeman individual view
+surprise pressure none youth ill below stream no surrounded ask winter mood boat written vowel
