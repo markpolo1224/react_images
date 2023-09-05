@@ -1,1 +1,1 @@
-wave eat tongue coach care nose hay port treated worse excited major soft most reach
+people hardly dawn village aloud vegetable composed warn flower diagram camera western wife during church
