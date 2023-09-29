@@ -1,1 +1,1 @@
-tide wall cap roll help weigh star noon total pond hospital tax income land slowly
+close motion since spoken enter poetry own speed difficulty melted nearly whole art seed welcome
