@@ -1,1 +1,1 @@
-close motion since spoken enter poetry own speed difficulty melted nearly whole art seed welcome
+previous store worker like condition entirely finger scared life audience taste policeman refer sides gate
