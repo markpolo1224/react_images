@@ -1,1 +1,1 @@
-rising paid manner itself piece wall paid think shake shadow angry take front gold crack
+struck sitting ten thousand score ordinary stared pink aboard mass song progress plan sick writing
