@@ -1,1 +1,1 @@
-wild worried fine center whispered slight opportunity thing safe taken sweet sat article said chicken
+previous adventure tropical long sport limited lose putting morning life smoke forty purpose radio beat
