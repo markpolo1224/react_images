@@ -1,1 +1,1 @@
-curve has captured recognize magnet depth exercise visit swept pleasure behavior lesson riding actually satisfied
+claws twenty telephone term treated gift saddle felt branch plan told kept count slipped press
