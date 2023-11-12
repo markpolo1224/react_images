@@ -1,1 +1,1 @@
-claws twenty telephone term treated gift saddle felt branch plan told kept count slipped press
+bright continent warn courage vertical sit under circus dish desert gun mouse married somebody prove
