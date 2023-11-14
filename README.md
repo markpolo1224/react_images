@@ -1,1 +1,1 @@
-effect wall parts biggest yet queen percent return joined article struck eat willing eventually pour
+pine ever however parent best loose hole husband union dot spirit percent handsome map sat
