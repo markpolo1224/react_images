@@ -1,1 +1,1 @@
-pine ever however parent best loose hole husband union dot spirit percent handsome map sat
+rhyme gate art behavior strange wrote hollow shore ranch affect pull pour sight carry duck
