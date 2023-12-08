@@ -1,1 +1,1 @@
-rise dollar pine vegetable exactly let sitting sun blow primitive closer guide valuable before chief
+screen swung sum best anybody sharp scene slept pile badly thumb lucky shinning help shape
