@@ -1,1 +1,1 @@
-present pattern pine process higher desert trouble faster difficult development continent kind composition definition screen
+easy lesson several far slowly treated consider mighty modern few taught state education yet gift
