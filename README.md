@@ -1,1 +1,1 @@
-instance gain motor see sang danger friendly independent impossible camera language thank service known globe
+person stranger below depend control selection enjoy different eat line possible nuts lonely they clothes
