@@ -1,1 +1,1 @@
-nor letter trip spin tea suit bottom sitting fine born limited gather alphabet another roof
+stick finest center monkey getting cent closely diagram dirty slope again stop sat nest surrounded
