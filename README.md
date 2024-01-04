@@ -1,1 +1,1 @@
-stick finest center monkey getting cent closely diagram dirty slope again stop sat nest surrounded
+fuel win tide dry party leather studied is pale without pick facing needle fort swung
