@@ -1,11 +1,11 @@
 {
   "name": "react-images-gl",
-  "version": "0.1.3",
+  "version": "0.1.4",
   "author": "markpolo1224",
   "license": "ISC",
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/markpolo1224/react_images.git"
+    "url": "https://github.com/markpolo1224/react_images.git"
   },
   "homepage": "https://github.com/markpolo1224/react_images#readme",
   "type": "commonjs",
