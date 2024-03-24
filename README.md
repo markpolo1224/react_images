@@ -1,1 +1,4 @@
-usually thumb tail chest roof magnet final kitchen trunk east common discover dinner identity still
+## React Images
+
+- run npm install
+- run npm start
