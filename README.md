@@ -1,4 +1,1 @@
-## React Images
-
-- run npm install
-- run npm start
+occur balloon scientific lay start audience stared heart current shoot poet unless fastened bare smoke
